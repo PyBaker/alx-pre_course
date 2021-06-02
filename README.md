@@ -1,3 +1,4 @@
-It's the only time you are allowed to update and commit from GitHub interface
+*Emphasize* _emphasize_
+**Strong** __Strong__
 
 well not too sure if this is what's nedded but ey , YOLO 
