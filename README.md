@@ -5,3 +5,4 @@ Well done fam :)
 remember your why 
 cause you're the one 
 somethimes the road
+is hard and I know you're 
