@@ -6,3 +6,5 @@ remember your why
 cause you're the one 
 somethimes the road
 is hard and I know you're 
+trying but keep Praying and keep moving 
+One step at a time God's got you 
